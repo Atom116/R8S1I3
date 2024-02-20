@@ -14,3 +14,6 @@ Best regards
 
 Hi, sorry for some delay.
 Here is the verification code: 015592
+
+10: 20 am
+New verification code: 505264
