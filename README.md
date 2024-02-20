@@ -8,3 +8,9 @@ I hope this message finds you well
 If you have any question, pls write here what you want.
 
 Best regards
+
+
+-------------------------
+
+Hi, sorry for some delay.
+Here is the verification code: 015592
